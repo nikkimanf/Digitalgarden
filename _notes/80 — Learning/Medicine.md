@@ -1,5 +1,0 @@
-# Medicine
-
-Among the trigrams, the sun is Fire ☲, yang outside and yin inside, symbolizing the presence of flexibility within strength. Among the trigrams, the moon is Water ☵, yin outside and yang inside, symbolizing the presence of strength within flexibility. The science of spiritual alchemy is simply a matter of taking flexibility within strength and strength within flexibility, which are the two great medicines of true yin and true yang, and fusing them into one energy, thus forming the elixir.
-
-The alchemical classics use the sixty-four hexagrams to represent the principles of the yang fire and the ying convergence. The two hexagrams Heaven and Earth are taken for the crucible and furnace because the firmness of yang and the flexibility of yin are considered the substance. The two hexagrams Water and Fire are taken for the medicinal substances because the balance of firmness and flexibility is considered the function.

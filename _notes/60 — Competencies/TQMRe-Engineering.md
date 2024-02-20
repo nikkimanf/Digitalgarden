@@ -1,3 +1,0 @@
-# TQM/Re-Engineering 
-
-Is dedicated to providing the highest quality products and services which meet the needs and requirements of internal and external customers; is committed to continuous improvement through empowerment and management by data; is willing to re-engineer processes from scratch; is open to suggestions and experimentation; creates a learning environment leading to the most efficient and effective work processes.

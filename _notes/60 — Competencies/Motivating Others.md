@@ -1,3 +1,0 @@
-## Motivating Others
-
-Creates a climate in which people want to do their best; can motivate many kinds of direct reports and team or project members; can assess each persons hot button and use it to get the best out of him/her; pushes tasks and decisions down; empowers others; invites input from each person and shares ownership and visibility; makes each individual feel his/her work is important; is someone people like working for and with.
